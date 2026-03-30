@@ -1,1 +1,1 @@
-# Christian-Phenomenology-Course
+# Philosophy Curriculum
